@@ -1,0 +1,1 @@
+# OperacaoDeSoftware-Gallo
